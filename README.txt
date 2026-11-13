@@ -1,0 +1,1 @@
+MS 22 multi-service — site ONE PAGE. Ouvrir index.html. Les 10 photos des cartes métiers sont des illustrations et ne représentent pas des chantiers réels de MS 22. Toutes les activités et les liens internes sont dans index.html.
